@@ -1,4 +1,4 @@
-<br><p align="center"><img src="https://komarev.com/ghpvc/?username=name&base=20000&label=✧&base=0&color=0d0f26&style=plastic"> </p>
+<br><p align="center"><img src="https://komarev.com/ghpvc/?username=name&base=20000&label=✧&base=0&color=0d0f26&style=flat-square"> </p>
 <br>
 <div align="center"> 
 <img src="https://files.catbox.moe/8cseu5.jpg">
