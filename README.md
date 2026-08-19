@@ -10,7 +10,7 @@
 <p>${\textsf{\color{#FFFFFF} i block freely YO}}$
 </p>
 <br><br><details> <summary>${\textsf{\color{#f0f0f0}tap}}$</summary>
-<br><p> updated INTJ-T 6w5 sp/sx 649. pt and mc player. know more about me in websites beneath (updating strawpage soon). also if youre oomf who constantly changes their git user im not adding you in my bio. its reasonable so word for word. lee smith + spamton g. spamton + tennis ball fictkin n #1 fan . COLE ♡'S MASON
+<br><p> updated INTJ-T 6w5 sp/sx 649. pt and mc player. know more about me in websites beneath (updating strawpage soon). also if youre oomf who constantly changes their git user im not adding you in my bio. its reasonable so word for word. lee smith + spamton g. spamton + tennis ball fictkin n #1 fan . COLE ♡'S FAITH
 </details>
 </p> <br><br><a href="https://shatteredsharpels.straw.page/".>sp</a>                      .                      <a href="https://pronouns.cc/@ShatteredSharpels">prns</a> . <a href="https://shatteredsharpels.atabook.org/".>ata</a> <div align="center">
 <br>
