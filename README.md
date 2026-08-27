@@ -1,7 +1,7 @@
-<br><p align="center"><img src="https://komarev.com/ghpvc/?username=name&base=20000&label=𐌔&base=0&color=6c331f&style=flat-square"> </p>
+<br><p align="center"><img src="https://komarev.com/ghpvc/?username=name&base=20000&label=𐌔&base=0&color=825b3e&style=flat-square"> </p>
 <br>
 <div align="center"> 
-<img src="https://files.catbox.moe/wb81rg.jpg">
+<img src="https://files.catbox.moe/j81bxh.png">
 
 <br>
 <br>
