@@ -7,9 +7,9 @@
 <br>
 <br>
 
-<p>${\textsf{\color{#FFFFFF} updating git and straw soon}}$
+<p>${\textsf{\color{#c9c7b7} updating git and straw soon}}$
 </p>
-<br><br><details> <summary>${\textsf{\color{#f0f0f0}ᯓ‎ 𝄞 ˎˊ˗}}$</summary>
+<br><br><details> <summary>${\textsf{\color{#CDBEAD}ᯓ‎ 𝄞 ˎˊ˗}}$</summary>
 <br><p> wip in prog . COLE ♡'S FAITH
 </p>
 </details>
