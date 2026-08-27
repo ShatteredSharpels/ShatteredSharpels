@@ -9,8 +9,9 @@
 
 <p>${\textsf{\color{#FFFFFF} updating git and straw soon}}$
 </p>
-<br><br><details> <summary>${\textsf{\color{#f0f0f0}tap}}$</summary>
+<br><br><details> <summary>${\textsf{\color{#f0f0f0}ᯓ‎ 𝄞 ˎˊ˗}}$</summary>
 <br><p> wip in prog . COLE ♡'S FAITH
+</p>
 </details>
 </p> <br><br><a href="https://shatteredsharpels.straw.page/".>ＳＴＲＡＷ</a>                      .                      <a href="https://pronouns.cc/@ShatteredSharpels">ＰＲ.ＮＳ</a> . <a href="https://shatteredsharpels.atabook.org/".>新ＢＯＯＫ</a> <div align="center">
 <br>
