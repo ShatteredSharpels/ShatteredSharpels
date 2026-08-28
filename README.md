@@ -10,7 +10,7 @@
 <br><p> INTJ-T 6W5 SP/SX 694 . PT and MC player . Spamton G. Spamton Fictionkinner . COLE ♡'S FAITH
 </p>
 </details>
-</p> <br><a href="https://shatteredsharpels.straw.page/".>ＳＴＲＡＷ</a>                      .                      <a href="https://pronouns.cc/@ShatteredSharpels">ＰＲ.ＮＳ</a> . <a href="https://shatteredsharpels.atabook.org/".>新ＢＯＯＫ</a> <div align="center">
+</p> <br><a href="https://shatteredsharpels.straw.page/".>ＳＴＲＡＷ</a> . <a href="https://pronouns.cc/@ShatteredSharpels">ＰＲ.ＮＳ</a> . <a href="https://shatteredsharpels.atabook.org/".>新ＢＯＯＫ</a> <div align="center"> . <a href="https://guns.lol/shatteredsharpel">ＧＵＮＳ</a> <br>
 <br>
 </p>
 </div>
