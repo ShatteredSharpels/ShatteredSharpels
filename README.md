@@ -1,10 +1,8 @@
-<br><p align="center"><img src="https://komarev.com/ghpvc/?username=name&base=20000&label=𐌔&base=0&color=825b3e&style=flat-square"> </p>
+<br><p align="center"><img src="https://files.catbox.moe/j81bxh.png">
 <br>
-<div align="center"> 
-<img src="https://files.catbox.moe/j81bxh.png">
+<br>
+<div align="center"><img src="https://komarev.com/ghpvc/?username=name&base=20000&label=𐌔&base=0&color=825b3e&style=flat-square"> </p>
 
-<br>
-<br>
 <br>
 
 <p>${\textsf{\color{#c9c7b7} 𝘶𝘱𝘥𝘢𝘵𝘪𝘯𝘨 𝘨𝘪𝘵 𝘢𝘯𝘥 𝘴𝘵𝘳𝘢𝘸 𝘴𝘰𝘰𝘯}}$
