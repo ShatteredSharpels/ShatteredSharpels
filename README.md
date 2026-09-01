@@ -5,7 +5,7 @@
 
 <br>
 
-<p> ｃ : <a href="https://www.tumblr.com/bureauen".>@ｂｕｒｅａｕｅｎ</a></p>
+<p> ｃ : <a href="https://x.com/ClinicalTrialFA/status/2079332385318146535".>ＣＴ.Ｆ</a></p>
 <br><details> <summary>${\textsf{\color{#bdb2b6} ｔａｐ}}$</summary>
 <br><p> INTJ-T 8w7 SP 863 . PT and MC player . Spamton G. Spamton and Lee Smith Fictionkinner . COLE ♡'S FAITH
 </p>
