@@ -5,7 +5,7 @@
 
 <br>
 
-<p> ｃ : モブサイコ100 </p>
+<p> ｃ : モブサイコ １００ </p>
 <br><details> <summary>${\textsf{\color{#bdb2b6} ｔａｐ}}$</summary>
 <br><p> INTJ-T 8w7 SP 863 . PT and MC player . Spamton G. Spamton and Lee Smith Fictionkinner . on hiatus due to being extremely busy
 </p>
