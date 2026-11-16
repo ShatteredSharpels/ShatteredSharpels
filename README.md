@@ -2,14 +2,11 @@
 <p align="center"><img src="https://files.catbox.moe/gg5rx5.gif">
 <br>
 <br>
-<div align="center"><img src="https://komarev.com/ghpvc/?username=name&base=20000&label=𐌔&base=0&color=5d6664&style=flat-square"> </p>
+<div align="center"><img src="https://komarev.com/ghpvc/?username=name&base=20000&label=𐌔&base=0&color=14120a&style=flat-square"> </p>
 <p></p>
 <br><details> <summary>${\textsf{\color{#eae1c0} ｔａｐ}}$</summary>
 <br><p> check other socials for more info . on hiatus due to being extremely busy
 </p>
 </details>
-</p> <br><a href="https://shatteredsharpels.straw.page/".>ＳＴＲＡＷ</a> . <a href="https://pronouns.cc/@ShatteredSharpels">ＰＲ.ＮＳ</a> . <a href="https://shatteredsharpels.atabook.org/".>新ＢＯＯＫ</a> <div align="center"> . <a href="https://guns.lol/shatteredsharpel">ＧＵＮＳ</a> <br>
-<br>
-</p>
-</p>
-</div>
+</p> <br><a href="https://shatteredsharpels.straw.page/".>ＳＴＲＡＷ</a> . <a href="https://pronouns.cc/@ShatteredSharpels">ＰＲ.ＮＳ</a> . <a href="https://shatteredsharpels.atabook.org/".>新ＢＯＯＫ</a> <div align="center"> . <a href="https://guns.lol/shatteredsharpel">ＧＵＮＳ</a> <br></div>
+</br>
